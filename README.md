@@ -1,0 +1,1 @@
+# photoshop-2025-last-version-download
